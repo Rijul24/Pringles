@@ -1,2 +1,2 @@
 # Knives-Potatoes
-Somethings cooking...
+do you have what it takes?
