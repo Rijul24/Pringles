@@ -5,3 +5,5 @@ With an indulging lore and a horrifying history,I can assure that you won't be d
 
 This is my first ever game, so any feedback is highly appreciated! <3
 
+Download the game here!
+https://linktr.ee/saladcrunchproductions
